@@ -1,6 +1,6 @@
 # QuantoCiCosta?
 
-## Workshop 03-Sustainability through design
+## Workshop 03-Sustainability through design [4/8 Luglio2022]
 #### Esperienze di realtà aumentata per la valorizzazione del World Heritage
 
 
