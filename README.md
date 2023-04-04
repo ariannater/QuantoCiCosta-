@@ -13,7 +13,8 @@ https://user-images.githubusercontent.com/101118175/229782033-c774cbde-5e8b-4437
 
 
 #### Patrocinio: H2020 GreenScent Project, leader Uninettuno International Telematic University 
-#### Professori: Alessandro Pollini e Gianandrea Giacobone Tutor: Alessia Valgimigli_Progetto di Terenzi Arianna e Dolci Sara
+#### Professori: Alessandro Pollini e Gianandrea Giacobone 
+#### Tutor: Alessia Valgimigli_Progetto di Terenzi Arianna e Dolci Sara
 
 
 
